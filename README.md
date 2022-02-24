@@ -1,1 +1,1 @@
-https://jalynkyrgyz.github.io/Restaurant-and-cars/inbox.html
+https://jalynkyrgyz.github.io/Restaurant-and-cars/index.html
